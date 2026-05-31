@@ -259,7 +259,7 @@ Data Science Intern @ CodeAlpha
 
 GitHub: https://github.com/vansh3452
 
-LinkedIn: https://linkedin.com/in/YOUR_PROFILE
+LinkedIn: https://www.linkedin.com/in/vansh-gupta-6465a23a8?
 
 ---
 
